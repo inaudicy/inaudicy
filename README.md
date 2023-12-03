@@ -1,3 +1,4 @@
 - 👋 Hi, I’m @inaudicy.
 - 📜 I'm a little bit of a skid lmao.
 - 🐱 I like cats they are so silly.
+- 😭 I'm decently new to coding, don't judge lol.
