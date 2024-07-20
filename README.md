@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @inaudicy.
-- 📜 I LOVE SKIDDING!!!
-- 🐱 I like cats they are so silly.
+- 📜 Full time skidder!
