@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @inaudicy.
-- 📜 Full time skidder!
+- 📜 skidmaxxing larpmaxxing newgen
