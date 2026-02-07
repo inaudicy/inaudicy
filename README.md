@@ -1,2 +1,1 @@
 - 👋 Hi, I’m @inaudicy.
-- 📜 skidmaxxing larpmaxxing newgen
